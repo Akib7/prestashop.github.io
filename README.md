@@ -1,1 +1,1 @@
-# prestashop.github.io
+# Subdomai has been taken over
